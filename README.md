@@ -7,5 +7,5 @@ Hey there 👋
 - 💬 Ask me about Competitive Coding and Data Science
 - 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/sneha-gupta-a157b4188/)
 - 😄 Pronouns: She/Her, Coder, Understanding
-- ⚡ Fun fact: I could talk about Politics and Women Empowerment whole day and have a keen interest in Cooking, Painting and eating.
+- ⚡ Fun fact: I could talk about Politics and Women Empowerment whole day and have a keen interest in Cooking and Painting.
 
